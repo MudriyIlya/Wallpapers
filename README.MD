@@ -25,17 +25,9 @@
 
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/8.png?raw=true)
 
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/9.png?raw=true)
-
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/10.png?raw=true)
 
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/11.png?raw=true)
-
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/12.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/13.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/14.png?raw=true)
 
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/15.png?raw=true)
 
@@ -44,14 +36,6 @@
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/17.png?raw=true)
 
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/18.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/19.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/20.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/21.png?raw=true)
-
-![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/22.png?raw=true)
 
 ![alt text](https://github.com/MudriyIlya/Wallpapers/blob/main/23.png?raw=true)
 
